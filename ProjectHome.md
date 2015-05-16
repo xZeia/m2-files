@@ -1,0 +1,1 @@
+Metin2 Serverfiles by Daroo modded by Padrio & Icebeatzz.
